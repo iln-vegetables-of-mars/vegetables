@@ -4,3 +4,4 @@
 3. Pimientos:contienen nutrientes como el folato,magnesio,son ricos en fibra y en vitamina CyB6. 3 o 4 meses,distancia de profundidad 20cm. Hay un 90% que crezcan todas. 
 4. Espinacas:pueden crecer en cualquier tipo de suelo,no necesita mucha luz y puede sobrevivir al invierno. 40 y 50 días en crecer y necesita 6cm de profundidad. Hay un 96% de que crezcan todas.
 5. Guisantes:aportan minerales,fibra,azúcares,hidratos de carbono,poteinas y vitamina A. 2 meses para q crezca y de altura 1/3 pies. Hay un 88% que crezcan todas.
+Alimentacion minima:2800kcal.
