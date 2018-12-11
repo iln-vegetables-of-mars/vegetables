@@ -1,6 +1,5 @@
-Soy un niño de 13 años y me encanta la robotica, llevo 5 años dando clases juanto a mis compañeros.
-Me llevo a interesarme cuando en internet aparecían cosas relacionadas con la tecnología , inovaciones, etc. Me han influenciado de manera que pueda estar participando en este tipo de concursos y en mis conocimientos.
-El cientifico al que mas admiro es 
-Mis planes son hacerme un grado en algún tipo de ingenieria y intentar trabajar para la NASA o ESA.
-Me encantaría ganar porque podría tener dinero para formarme en todos estos temas.
-Joaquín
+Soy un niño de 13 años,me gusta la tecnologia desde muy pequeño,hace 3 años empece robotica,me quede por que me gusto mucho el tema de la programar.
+Cuando era pequeño me gustaban desmontar cosas para saber por que hacia esas funciones.
+Me gustaria trabajar en construir o diseñar algun tipo de robot para el espacio.
+Me gustaria ganar el premio por que podria hacer un propio robot.
+Maximo.
